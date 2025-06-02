@@ -74,7 +74,7 @@ We reserve the right to update these terms at any time without prior notice. Con
 For any questions about this website, Privacy Policy, or Terms and Conditions, please contact:
 
 **Nuvitro Limited**  
-Email: support@nuvitro.in  
+Email: info@nuvitro.in  
 Website: https://www.nuvitro.in  
 
 ---
